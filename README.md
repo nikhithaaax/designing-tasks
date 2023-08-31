@@ -1,5 +1,9 @@
 # designing-tasks
 
 TASK 1 - COMPLETED
+
+
 TASK 2 - COMPLETED
+
+
 TASK 3 - COMPLETED
