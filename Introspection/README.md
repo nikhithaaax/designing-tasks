@@ -8,7 +8,7 @@ For the next 6 months I wanna upskill my knowledge in coding areas. As I continu
 
 Contributions to the club:
 
-One of the things that excites me most about coding is the supportive and collaborative community that surrounds it. I'm eager to connect with fellow learners, exchange insights, and perhaps even work on projects together. After all, there's no better way to learn than from one another.Thank you for welcoming me into this community. I'm excited to learn, share, and embark on this coding adventure with other fellows in the club. Here's to the challenges and triumphs that lie ahead as we navigate this fascinating world together. I am genuinely looking forward to contributing my best to the club's initiatives and collaborating with fellow passionate members.
+One of the things that excites me most about coding is the supportive and collaborative community that surrounds it. I'm eager to connect with fellow learners, exchange insights, and perhaps even work on projects together. After all, there's no better way to learn than from one another. I'm excited to learn, share, and embark on this coding adventure with other fellows in the club. Here's to the challenges and triumphs that lie ahead as we navigate this fascinating phase together. I am genuinely looking forward to contributing my best to the club's initiatives and collaborating with fellow passionate members.
 
 Feedback on selection process:
 
